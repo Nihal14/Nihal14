@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nihal14
 - 👀 I’m interested in learning new things .
-- 🌱 I’m currently studying 3rd Year Engineering
+- 🌱 I’m currently in Final Year Engineering
 - 
 - 📫 Reach me at nihalathri@gmail.com 
 <!---
